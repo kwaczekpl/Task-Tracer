@@ -3,6 +3,3 @@
 4444
 
 
-fetuerueut
-
-okokokooko
